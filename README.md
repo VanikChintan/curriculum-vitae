@@ -1,2 +1,2 @@
 # curriculum-vitae
-Under This Retail Shop Interior Decoration Service, We Provide The Remarkable Decoration Of Various Retails Shop In An Effective Manner.
+I am a Highly Competent IT Professional With a Proven Track Record in Designing Websites, Networking And Managing Databases.
